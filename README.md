@@ -1,2 +1,5 @@
-# SWP1minii neriig boldoo gedeg baihaa sda haha
-bas bi huurhun.
+Gerelt-Och Temuujin
+20243019
+
+Temuujin 20243019
+
